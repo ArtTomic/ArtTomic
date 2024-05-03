@@ -2,13 +2,13 @@ Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 
 ------------------------------------------------------
 
--INT Phighting/Regretevator/Rain world/Hlvrai
+-INT Phighting/Regretevator/Rain world/HLVRAI
 
 (INT with caution)
-if you are hateful when it comes to ships, aka hating them just because you dont like them.(unless you're joking ofc)
+if you are hateful when it comes to ships, aka hating them just because you dont like them.(unless you're joking/or it's a proship obv)
 idc what you like just don't be hateful and we'll slay
 
--DNI Hazbin or Helluva/The Coffin of Andy and Leyley/Homophobic/Transphobic etc/Medstaff enojoyers(joke)/people who sexualize Biograft..it's 4
+-DNI Hazbin or Helluva/The Coffin of Andy and Leyley/Homophobic/Transphobic etc/Medstaff enojoyers(JOKE)/people who sexualize Biograft..it's 4
 
 
 I am very sensitive be nice :(
