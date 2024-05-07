@@ -17,3 +17,5 @@ I Also Take Commissions and have some adoptables.
 
 
 ![me682l2d7ljc1](https://github.com/ArtTomic/ArtTomic/assets/168746124/36961109-6449-4539-abdc-94d41befab7f)
+
+I actually hate Gnarpy I want xem boiled.
