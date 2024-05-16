@@ -8,7 +8,7 @@ Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 if you are hateful when it comes to ships, aka hating them just because you do not like them (unless you're joking/or it's a proship obviously)
 idc what you like just don't be hateful and we'll slay
 
--DNI Hazbin or Helluva/The Coffin of Andy and Leyley/Alfreds Playhouse/TAL/Homophobic/Transphobic etc/Medstaff enjoyers(JOKE)/people who sexualize Biograft..it's 4
+-DNI Hazbin or Helluva/The Coffin of Andy and Leyley/Alfred's Playhouse/TAL/Homophobic/Transphobic etc/Medstaff enjoyers(JOKE)/people who sexualize Biograft..it's 4
 
 
 I am very sensitive be nice :(
