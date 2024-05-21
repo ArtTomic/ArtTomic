@@ -2,7 +2,7 @@ Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 
 ------------------------------------------------------
 
--INT Phighting/Regretevator/Rain world/HLVRAI/Postal/Pico's School/Hollow knight/The Stanley Parable/Lethal League/Pizza tower/Wander Over Yander
+-INT Phighting/Regretevator/Rain world/HLVRAI/TSP
 
 
 (INT with caution)
