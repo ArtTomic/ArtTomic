@@ -2,7 +2,8 @@ Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 
 ------------------------------------------------------
 
--INT Phighting/Regretevator/Rain world/HLVRAI/TSP
+-MAIN INT (I have more but that'd be a long list)
+Phighting/Regretevator/Rain world/HLVRAI/TSP
 
 
 (INT with caution)
