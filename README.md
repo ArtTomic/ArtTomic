@@ -11,7 +11,7 @@ idc what you like just don't be hateful and we'll slay
 
 
 
--DNI Hazbin or Helluva/The Coffin of Andy and Leyley/Alfred's Playhouse/Homophobic/Transphobic etc/Medstaff enjoyers(JOKE)/people who sexualize Biograft..it's 4
+-DNI Hazbin or Helluva/The Coffin of Andy and Leyley/Alfred's Playhouse/Homophobic/Transphobic etc/people who sexualize Biograft..it's 4
 
 
 I am very sensitive be nice :(
