@@ -12,7 +12,7 @@ idc what you like just don't be hateful and we'll slay
 
 
 
--DNI Hazbin or Helluva/The Coffin of Andy and Leyley/Alfred's Playhouse/Homophobic/Transphobic etc/people who sexualize Biograft..it's 4
+-DNI Dandys World/Hazbin or Helluva/The Coffin of Andy and Leyley/Alfred's Playhouse/Homophobic/Transphobic etc/people who sexualize Biograft..it's 4
 
 
 I am very sensitive be nice :(
@@ -22,4 +22,3 @@ I Also Take Commissions and have some adoptables.
 
 ![me682l2d7ljc1](https://github.com/ArtTomic/ArtTomic/assets/168746124/36961109-6449-4539-abdc-94d41befab7f)
 
-I actually hate Gnarpy I want xem boiled.
