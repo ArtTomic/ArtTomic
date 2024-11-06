@@ -6,16 +6,14 @@ Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 Phighting/Regretevator/Rain world/HLVRAI/TSP
 
 
-(INT with caution)
-if you are hateful when it comes to ships, aka hating them just because you do not like them (unless you're joking/or it's a proship obviously)
-idc what you like just don't be hateful and we'll slay
+-DNI Dandys World/Hazbin or Helluva/The Coffin of Andy and Leyley/Alfred's Playhouse/Homophobic/Transphobic etc
 
+(For DW and HH/HB skins, you can talk to me if you like it. I'd just prefer not to hear about it or use those skins around me, I know it's a big ask, I apologize.)
 
-
--DNI Dandys World/Hazbin or Helluva/The Coffin of Andy and Leyley/Alfred's Playhouse/Homophobic/Transphobic etc/people who sexualize Biograft..it's 4
 
 
 I am very sensitive be nice :(
+
 
 I Also Take Commissions and have some adoptables.
 
