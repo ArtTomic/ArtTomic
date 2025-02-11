@@ -1,5 +1,8 @@
 Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 
+Marvel Rivals Account name: ArtTomic
+(Feel free to friend me!!)
+
 ------------------------------------------------------
 
 -MAIN INT (I have more but that'd be a long list)
