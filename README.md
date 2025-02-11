@@ -1,6 +1,6 @@
 Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 
-Marvel Rivals Account name: ArtTomic
+Marvel Rivals Account name- ArtTomic
 (Feel free to friend me!!)
 
 ------------------------------------------------------
