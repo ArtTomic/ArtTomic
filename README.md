@@ -1,6 +1,6 @@
 Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
 
-Marvel Rivals- ArtTomic
+Marvel Rivals- RyanReynoldsTM
 
 Toyhouse- https://toyhou.se/ArtTomic
 
