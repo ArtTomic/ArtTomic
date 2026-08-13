@@ -8,13 +8,22 @@ Toyhouse- https://toyhou.se/ArtTomic
 
 ------------------------------------------------------
 
-— Current Fandoms: 
+— Current Fandoms:
+
 Postal
+
 Marvel
+
 Resident Evil
+
 Deadlock
+
 Phighting
+
 Rainworld
+
+
+
 
 If you're homophobic, Transphobic, or racist (etc). I hate you thanks
 
