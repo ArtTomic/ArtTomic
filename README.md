@@ -1,4 +1,4 @@
-Spooky/Micheal (Or whatever character i'm using I don't Mind :3)
+Spooky/Pesticide (Or whatever character i'm using IDC
 
 Marvel Rivals- RyanReynoldsTM
 
@@ -8,11 +8,15 @@ Toyhouse- https://toyhou.se/ArtTomic
 
 ------------------------------------------------------
 
--MAIN INT (I have more but that'd be a long list)
-Phighting/Regretevator/Rain world/HLVRAI/Marvel
+— Current Fandoms: 
+Postal
+Marvel
+Resident Evil
+Deadlock
+Phighting
+Rainworld
 
-
-(For DW and HH/HB enjoyers, you can talk to me if you like it. I'd just prefer not to hear about those fandoms, nor would I like you to use those skins around me, I know it's a big ask, I apologize.)
+If you're homophobic, Transphobic, or racist (etc). I hate you thanks
 
 ---------------------------------------------------------------------------------------
 
