@@ -3,7 +3,6 @@ Spooky/Pesticide (Or whatever character i'm using IDC
 
 Toyhouse- https://toyhou.se/ArtTomic
 
-(Feel free to friend me!!)
 
 ------------------------------------------------------
 
