@@ -1,6 +1,5 @@
 Spooky/Pesticide (Or whatever character i'm using IDC
 
-Marvel Rivals- RyanReynoldsTM
 
 Toyhouse- https://toyhou.se/ArtTomic
 
